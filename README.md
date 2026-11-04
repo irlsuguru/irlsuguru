@@ -8,7 +8,7 @@
 <h1 align="center"> BYI + Interests </h1> 
 <p align="center"> I'm a friendly and talkative person, although I am not great at starting conversations
 <p align="center"> I'm into; JJK, BLEACH, Afk Journey, Minecraft, UtDr
-<p align="center"> Happy to play Roblox, Minecraft, VrChatm Ponytown, Anything. just let me know if you'd like to
+<p align="center"> Happy to play Roblox, Minecraft, VrChat, Ponytown, Anything. just let me know if you'd like to
   
 ![](https://64.media.tumblr.com/c3310825ff91dbb12ddb2da879f7b685/53460eb827122b25-f5/s1280x1920/d33281a96ec66aa0b031745170a97f49227d33b3.pnj)
 
