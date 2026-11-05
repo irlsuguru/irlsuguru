@@ -1,7 +1,7 @@
 ![](https://64.media.tumblr.com/a6fee5c13ccddca207bfbd0e798b1502/f8c2352490da7bc5-1e/s2048x3072/5ed1849c16cf749274eea4f21548eaccc1aeaa49.pnj)
 ![](https://64.media.tumblr.com/77185dc7024c1dec14f26497c5134a90/ceb409fe516d3f86-7c/s2048x3072/a20b65d3fda4a2ad53d128e2b65f850881f57d14.pnj)
 <h1 align="center">  Mozart  </h1> 
-<p align="center"> 20 // Gay // sx261 ESFP // He
+<p align="center"> 20 // sx261 ESFP 
 <p align="center"> IRL Suguru Geto ^_^ 
   
 ![](https://64.media.tumblr.com/359b4a740cbb7a73a13ab9407bd1d8bc/016bc4cee07aa61b-9a/s2048x3072/eb1b0e42c802bc45e746e7277dac84f285bfc102.pnj)
@@ -15,7 +15,6 @@
 <h1 align="center"> DNI - I TAKE IT SERIOUSLY  </h1> 
 <p align="center"> MINORS DO NOT INT. I AM TWENTY.
 <p align="center"> If my BPD is too much for you.
-<p align="center"> Do not call me a they. Call me a he. That's what I am
 <p align="center"> Refuse to speak about boundaries and refuse to communicate.
 <p align="center"> If all your jokes are about sex + touching people and you don't make effort to actually talk to that person outside of such scenarios.
 <p align="center"> Zoophiles, Pedophiles, MAPs, Xenophobes, Homophobes, Transphobes, Any other queerphobic person, Transmeds, Bigots
